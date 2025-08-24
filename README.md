@@ -1,0 +1,1 @@
+# Hatred-Turkce-Yama
